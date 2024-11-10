@@ -63,7 +63,7 @@
 ![Screenshot 2024-10-14 230413](https://github.com/user-attachments/assets/17ee0936-43af-4480-a5e4-5a4bd8562d64)
 
 
-### Name: RAGALA SAI 
+### Name: RAGALA SAI VIVEK
 ### Register Number: 212223230163
 
 ## Result: 
